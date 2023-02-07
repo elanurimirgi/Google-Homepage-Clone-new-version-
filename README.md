@@ -1,0 +1,1 @@
+# google-anasayfa-www.patika.dev
